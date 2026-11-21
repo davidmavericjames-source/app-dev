@@ -22,4 +22,8 @@ A former U.S. Marine Scout Sniper and Force Recon officer, Frank Castle became a
 - Billy Russo (Jigsaw)
 
 ---
+### More Information & Media
+[Official Marvel Character Page](https://www.marvel.com/characters/punisher-frank-castle)
+
+![The Punisher Skull Emblem](punisher-emblem.jpg)
 
